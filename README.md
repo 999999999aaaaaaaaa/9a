@@ -12,3 +12,5 @@
 # https://freeseximages.com 
 # 叮叮日记  https://www.dd22p.com 
 # 黑料不打烊 https://www.zzzttt.vip/
+# 第一版主小说网 https://www.diyibanzhu8.pro/
+# 蓝色导航 https://www.bluedh.club
