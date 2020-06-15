@@ -14,3 +14,8 @@
 # 黑料不打烊 https://www.zzzttt.vip/
 # 第一版主小说网 https://www.diyibanzhu8.pro/
 # 蓝色导航 https://www.bluedh.club
+# 锻炼手册 https://jiba.plus/
+# 武王小说网 http://wap.5wxs.com
+# Pornhub https://vip.mfhd.me/
+# 脚盆网 https://jporn.link http://121.102.98.219
+# 美漫 http://www.shadbase.com
