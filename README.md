@@ -19,3 +19,4 @@
 # Pornhub https://vip.mfhd.me/
 # 脚盆网 https://jporn.link http://121.102.98.219
 # 美漫 http://www.shadbase.com
+# 草榴社區 APP https://github.com/yuuwill/1024app-android/releases 技術討論區 https://cl.323n.ga/thread0806.php?fid=7
