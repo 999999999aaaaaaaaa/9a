@@ -11,7 +11,7 @@
 # 污污漫画 https://www.5wmh.com
 # https://freeseximages.com 
 # 叮叮日记  https://www.dd22p.com 
-# 黑料不打烊 https://www.zzzttt.vip/
+# 黑料不打烊 https://www.zzzttt.vip/ https://zzzttt.cc/
 # 第一版主小说网 https://www.diyibanzhu8.pro/
 # 蓝色导航 https://www.bluedh.club
 # 锻炼手册 https://jiba.plus/
@@ -21,3 +21,4 @@
 # 美漫 http://www.shadbase.com
 # 草榴社區 APP https://github.com/yuuwill/1024app-android/releases 技術討論區 https://cl.323n.ga/thread0806.php?fid=7
 # 漫天堂 https://52222.club/
+# 2048核基地發佈頁https://new2048.com/ https://48win.org/
