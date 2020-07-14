@@ -1,5 +1,5 @@
 # 9a
-# 老司機論壇 https://www.javbus.com 防屏蔽地址：https://www.busjav.cloud
+# 老司機論壇 永久域名：https://www.javbus.com 防屏蔽地址：https://www.fanbus.bid 防屏蔽地址：https://www.busfan.bid 防屏蔽地址：https://www.fanbus.cc 
 # 松鼠症倉庫发布页 http://aklist.xyz/
 # 紳士漫畫 https://www.bkcg.org/ 國內訪客地址 http://www.wnacg.wtf/ 紳士漫畫論壇 https://forum.wnacg.com/
 # Bt7086(1024核工厂) https://xp1024.com https://1024xp.com 免翻 https://k6.7086xx.com/pw/
