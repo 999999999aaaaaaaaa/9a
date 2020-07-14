@@ -37,8 +37,8 @@
 # --------
 #国外网站：
 # BDSM https://bdsmlr.com/
-https://sharesome.com
-https://newtumbl.com/
+# https://sharesome.com
+# https://newtumbl.com/
 # 图库 https://freeseximages.com/
 # 美漫 http://www.shadbase.com
 # https://www.xvideosexnxx.com  https://www.cbtownship.com
