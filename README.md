@@ -10,16 +10,16 @@
 # --------
 #在线漫画：
 # 松鼠症倉庫发布页 http://aklist.xyz/ 鏡象: http://493428493428c.monster http://67091c.monster http://63368c.monster
-# 紳士漫畫 https://www.bkcg.org/ 國內訪客地址 http://www.wnacg.wtf/ 紳士漫畫論壇 https://forum.wnacg.com/
+# 紳士漫畫 https://www.bkcg.org/ 國內訪客地址1：https://www.wnacg.wtf 國內訪客地址2：https://www.wnacg.fun紳士漫畫論壇 https://forum.wnacg.com/
 # 喵紳士最新網址發布頁 https://nyahentai.github.io 備用網址 https://miaoshenshi.com 
 # 漫天堂 https://52222.club/
 # 污污漫画 https://www.5wmh.com
 # 禁漫天堂 https://18comic.vip/
 # --------
 # 在线视频：
-# PornHub 第三方 https://vip.mfhd.me/ 发布页永久域名： http://www.x1080.com 可用域名： https://www.c800.me
+# PornHub 第三方 https://vip.mfhd.me/ 发布页永久域名： http://www.x1080.com 可用域名： https://www.c800.me 另一个 https://pornhdxvideos.xyz/
 # 蛋蛋视频 http://www.ddav06.com/
-# 黑料不打烊 https://www.zzzttt.vip/ https://zzzttt.cc/ https://zzzttt02.com/
+# 黑料不打烊 https://www.zzzttt.vip/ https://zzzttt.cc/ https://zzzttt03.com/
 # 啪啪啪 主站地址: http://papapa.info/ 备份地址: http://www.yase1.xyz
 # 脚盆网 https://jporn.link http://121.102.98.219
 # 叮叮日记  https://www.dd22p.com 
