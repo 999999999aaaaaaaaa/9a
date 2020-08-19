@@ -10,7 +10,7 @@
 # --------
 #在线漫画：
 # 松鼠症倉庫发布页 http://aklist.xyz/ 鏡象: http://493428493428c.monster http://67091c.monster http://63368c.monster
-# 紳士漫畫 https://www.bkcg.org/ 國內訪客地址1：https://www.wnacg.wtf 國內訪客地址2：https://www.wnacg.fun紳士漫畫論壇 https://forum.wnacg.com/
+# 紳士漫畫 https://www.bkcg.org/ 國內訪客地址1：https://www.wnacg.wtf 國內訪客地址2：https://www.wnacg.fun 紳士漫畫論壇 https://forum.wnacg.com/
 # 喵紳士最新網址發布頁 https://nyahentai.github.io 備用網址 https://miaoshenshi.com 
 # 漫天堂 https://52222.club/
 # 污污漫画 https://www.5wmh.com
@@ -21,9 +21,9 @@
 # 蛋蛋视频 http://www.ddav06.com/
 # 黑料不打烊 https://www.zzzttt.vip/ https://zzzttt.cc/ https://zzzttt03.com/
 # 啪啪啪 主站地址: http://papapa.info/ 备份地址: http://www.yase1.xyz
-# 脚盆网 https://jporn.link http://121.102.98.219
+# 脚盆网 https://jporn.link http://113.197.146.51
 # 叮叮日记  https://www.dd22p.com 
-# 猫咪 http://WWW.MAOMIAV.COM  https://www.d240d2927cde.com/shipin/list-短视频.html 发送任意邮件： semaomi@mail.com 获取最新 今日最新域名 https://www.f86e.com 今日备用域名 https://www.d240d2927cde.com www.e5g5.com 
+# 猫咪 http://WWW.MAOMIAV.COM  https://www.b6651f5a81c9.com/shipin/list-短视频.html 发送任意邮件： semaomi@mail.com 获取最新 今日最新域名 https://www.f86e.com 今日备用域名 https://www.d240d2927cde.com www.e5g5.com 
 # --------
 # 在线小说：
 # 第一版主小说网 https://www.diyibanzhu8.pro/
